@@ -1,4 +1,4 @@
-
+new Workflow for Bartender for macOS - screenshot-tools and memory-optimization is the best Bartender for macOS workflow, featuring screenshot-tools and memory-optimization. Safe,
 
 
 
